@@ -12,5 +12,5 @@ Meu nome é samara ribeiro
 
 @samara_ribeir0
 
-![](https://media1.tenor.com/m/Oc53pHpn960AAAAd/computador-afonsinha.gif") 
+![](https://media1.tenor.com/m/Oc53pHpn960AAAAd/computador-afonsinha.gif) 
 
