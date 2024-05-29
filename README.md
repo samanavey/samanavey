@@ -12,4 +12,4 @@ Meu nome é samara ribeiro
 
 @samara_ribeir0
 
-  https://tenor.com/pt-BR/view/computador-afonsinha-gif-20508355
+<div class="tenor-gif-embed" data-postid="20508355" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/computador-afonsinha-gif-20508355">Computador Afonsinha GIF</a>from <a href="https://tenor.com/search/computador-gifs">Computador GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>
