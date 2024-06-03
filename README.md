@@ -12,4 +12,4 @@ Meu nome é samara ribeiro
 
 @samara_ribeir0
 
-![](https://tenor.com/pt-BR/view/computador-afonsinha-gif-20508355)
+![](https://media1.tenor.com/m/wFZSTXCzdLMAAAAC/acervoism-gifs-agatha-nunes.gif)
